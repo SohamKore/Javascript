@@ -1,2 +1,2 @@
 # Javascript
-Duuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuude im so overworked help, This is too fkfkkfinng much.
+Uhm..., I might have been high
